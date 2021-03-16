@@ -1,4 +1,4 @@
-## BritTea
+![Imgur](https://i.imgur.com/3ittA1C.png)
 
 Website Link : https://brittea.uk
 
